@@ -12,7 +12,7 @@
 *
 *
 *
-*
+* Susana Marquez Parente, susanamarquez, Modern and Contemporary World
 *
 *
 *
